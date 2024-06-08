@@ -1,0 +1,1 @@
+# Market-analysis-for-OpenAI-applications-by-Ritam-Saha
